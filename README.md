@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @MICROTESTER123456
 - 👀 I’m interested in EVERYTHING ABOUT TECHNOLOGY.
-- nice 2 meet you 
 
 
 <!---
