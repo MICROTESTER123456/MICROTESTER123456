@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MICROTESTER123456
-- 👀 I’m interested in EVERYTHING ABOUT TECHNOLOGY.
+- 👀 I’m interested in EVERYTHING ABOUT TECHNOLOGY AND AI. 
 
 
 
