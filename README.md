@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @MICROTESTER123456
-- 👀 I’m interested in EVERYTHING ABOUT TECHNOLOGY AND AIBYE....
-- SORRY NOT SORRY
+- 👀 I’m interested in EVERYTHING ABOUT TECHNOLOGY AND AIBYE.
 
 
 
