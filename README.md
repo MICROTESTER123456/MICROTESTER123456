@@ -8,4 +8,4 @@ the 2023 year
 IM done with stupid questions 
 ćĄ█♀c○xZ
 
-hamster withcher 
+hamster withcher 1
