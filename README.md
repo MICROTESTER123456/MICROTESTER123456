@@ -7,5 +7,3 @@ they treat hamsters well in the 21st century
 the 2023 year
 IM done with stupid questions 
 ćĄ█♀c○xZ
-
-hamster withcher 1
