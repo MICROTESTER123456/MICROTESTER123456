@@ -8,3 +8,4 @@ the 2023 year
 IM done with stupid questions 
 ćĄ█♀c○xZ......
 HAKUNAMATATA is my real language AND NATION
+beat me in poker 
