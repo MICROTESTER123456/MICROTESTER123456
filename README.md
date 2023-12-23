@@ -7,4 +7,4 @@ they treat hamsters well in the 21st century
 the 2023 year
 IM done with stupid questions 
 ćĄ█♀c○xZ......
-HAKUNAMATATA is my real language AND NATION
+HAKUNAMATATA is my real language
