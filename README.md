@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MICROTESTER123456 THE BIG G :D
+- 👋 Hi, I’m @MICROTESTER123456
 - 👀 I’m interested in EVERYTHING ABOUT TECHNOLOGY.
 HAMSTER IS MY SOUL ANIMAL AND BEST FRIEND....
 what if i told you  
